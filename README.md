@@ -32,6 +32,19 @@ http://g.recordit.co/xwqfTXpG4Q.gif
 <img src='http://g.recordit.co/xroAgAauBE.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
 http://g.recordit.co/xroAgAauBE.gif
 ---
+<img src='http://g.recordit.co/xroAgAauBE.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
+http://g.recordit.co/C3crzC4GsE.gif
+
+
+
+
+
+
+
+
+
+
+---
 <img src='http://g.recordit.co/QHzgG7afm7.gif' title='Video Walkthrough' width='' alt='Video Walkthrough' />
 http://g.recordit.co/QHzgG7afm7.gif
 ---
